@@ -6,8 +6,14 @@
 天涯吃瓜海外永久中转：https://tycg.com
 
 天涯吃瓜备用地址：
-备用直连1：
-备用直连2：
+  备用地址1： https://tycg1.com
+
+  备用地址2： https://tycg2.com
+
+  备用地址3：https://tycg3.com
+
+  备用地址4：https://tycg4.com
+
 
 天涯吃瓜APP下载地址：
 最新地址 
@@ -18,7 +24,7 @@ iOS下载备用地址
 
 失联后如何找到回家的路：
 加入天涯吃瓜QQ粉丝群： 991773313
-邮箱发送任意邮件可获取最新地址  tycg666@gmail.com 
+邮箱发送任意邮件可获取最新地址  tycg1@pm.me
 关注天涯吃瓜最新地址发布页：
 
 关注天涯吃瓜推特：TianTianchigua
