@@ -39,7 +39,7 @@ iOS下载备用地址 ：https://tycg6.com
 
 关注天涯吃瓜推特：TianTianchigua
 
-关注GitHub：ttchigua@gmail.com
+关注GitHub：(https://github.com/tiantianchigua521)
 
 商务合作🤝  @tycg69
 
